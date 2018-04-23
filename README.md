@@ -1,3 +1,3 @@
 # hello-world
 just another repository
-sunday night. watched th elast half of westworld. meh.
+;sunday night. watched the last half of westworld. meh.
